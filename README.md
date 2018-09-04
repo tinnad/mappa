@@ -1,2 +1,0 @@
-# mappa
-skóla dót
